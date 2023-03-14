@@ -1,0 +1,4 @@
+# 1. 14/03/2023
+COMENTARIO 1: FELIZ CUMPLEAÑOS INSTRU QUE SIGAS CUMPLIENDO MUCHS MAS. SE LE QUIERE TQM ;3
+COMENTARIO 2: me robe el repositorio del profe :3
+COMENTARIO 3: el instructor es severo profe (0_0)
